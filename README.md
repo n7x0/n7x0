@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @n7x0
-- 🤷‍♂️ I’m interested lua
 - 😵‍💫 I’m currently learning jak nemit rad cerny
